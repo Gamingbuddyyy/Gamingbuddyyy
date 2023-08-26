@@ -28,7 +28,7 @@
 
 [![Github](https://img.shields.io/badge/-Github-181717?style=for-the-badge&logo=Github&logoColor=white)](https://github.com/GAMINGBUDDYYY)
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/ZORDANGAMING)
-[![Instagram](https://img.shields.io/badge/instagram-bb00ff?style=for-the-badge&logo=instagram&logoColor=black)](https://instagram.me/hug.ss_for_drugs)
+[![Instagram](https://img.shields.io/badge/instagram-bb00ff?style=for-the-badge&logo=instagram&logoColor=black)](https://instagram.com/hug.ss_for_drugs)
 
 ## My Stats
 
