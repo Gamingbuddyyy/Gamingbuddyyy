@@ -81,7 +81,7 @@
 
 <p align="center"><img src="https://thumbs.gfycat.com/GoodnaturedFondGaur-size_restricted.gif" alt="Synthwave" height="300" width="500"></p>
 
-![Visitors](https://visitor-badge.laobi.icu/badge?page_id=gamingbuddyyy)
+
 [![](https://img.shields.io/badge/Gmail-rupeshsingh9942@gmail.com-red)](mailto:rupeshsingh9942@gmail.com)
 [![](https://img.shields.io/badge/Telegram-%40zordangaming-blue)](https://t.me/zordangaming)
 ￼Enter
