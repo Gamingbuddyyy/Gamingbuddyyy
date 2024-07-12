@@ -1,11 +1,15 @@
 
-<h1> <img  style="align-item" :"center" src="https://graph.org/file/e6388abc57b90ad73bb94.gif" width="60px" height="80%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 😍💞💘   ᶦ ≛⃝🇼𝔼𝔼𝔻𝕃𝔼𝔸𝔽 ⋆‌⃝💔─⃛͢⋆ 💔💏<img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"></h1>
+<h1> <img  style="align-item" :"center" src="https://graph.org/file/facc052e4dbb9def8aed5.jpg" width="60px" height="80%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 😍💞💘   ᶦ ≛⃝🇼𝔼𝔼𝔻𝕃𝔼𝔸𝔽 ⋆‌⃝💔─⃛͢⋆ 💔💏<img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"></h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs 👀</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/gamingbuddyyy/count.svg" />
 </p> 
 
 [<img src="https://graph.org/file/2d48c45c5c461f6413be8.jpg"/>](https://github.com/Gamingbuddyyy)
+
+[<img src="https://graph.org/file/e6388abc57b90ad73bb94.gif"/>](https://github.com/Gamingbuddyyy)
+
+
 
 
 
