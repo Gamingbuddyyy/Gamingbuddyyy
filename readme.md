@@ -1,6 +1,8 @@
 
-<h1> <img  style="align-item" :"center" src="https://graph.org/file/facc052e4dbb9def8aed5.jpg" width="80px" height="80%"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 😍💞💘   ᶦ≛RUPESH ⋆‌⃝💔─⃛͢⋆ 💔💏<img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"></h1>
+<h1>  Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs 😍💞💘 ᶦ≛RUPESH ⋆‌⃝💔─⃛͢⋆ 💔💏<img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"></h1>
 <p align="center">
+   <img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=620&lines=𝐔+𝐂𝐀𝐍+𝐇𝐔𝐑𝐓+𝐌𝐄+𝐏𝐇𝐘𝐒𝐈𝐂𝐀𝐋𝐘+𝐁𝐔𝐓+𝐈+𝐂𝐀𝐍+𝐃𝐄𝐒𝐓𝐑𝐎𝐘+𝐔+𝐃𝐈𝐆𝐈𝐓𝐀𝐋𝐋𝐘+🖤+🥀"></b></h3>
+   <p align="center">
     <b>ᴠɪsɪᴛᴏʀs 👀</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/gamingbuddyyy/count.svg" />
 </p> 
